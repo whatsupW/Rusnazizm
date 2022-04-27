@@ -2,7 +2,7 @@
 
 Cały czas mówicie, że to Ukraińcy są nazistami. Nawet gdyby to co Wam do tego. Jak rosjanom w Ukrainie  przeszkadzało, że tam źle się żyje to mogli wyjechać. Czemu ich nie przeprowadziliście do siebie lub nie zrobił referendum demokratycznego. Patrz jak teraz wygląda wybawiony Mariopul.
 
-
+https://github.com/whatsupW/whatsupW/blob/main/img/3/Mariupol.mp4?raw=true
 
 Nawet jak wasze wojska się wycofują to zaminowują pola, drogi a nawet dziecięce zabawki.
 To jest normalne? Tak postępuje cywilizowany naród? Okradając zabitych cywili i gwałcąc kobiety, dzieci (nawet 2letnie?)
@@ -21,6 +21,12 @@ Hitler miał swastykę wy macie z
 Film o babci  
 
 Po wycofaniu się Wojsk rosyjskich w Buczy cała prawda wyszła na jaw. Co robią Rosjanie. Jak mordują, gwałcą, jak znęcają się nad jeńcami. Groby zbiorowe. Tak nie postępuje cywilizowany naród. Mamy XXI wiek. Jak zauważyliście media mają dużą moc. Putin mówi, że to nie wy zabijaliście bo 1 kwietnia już was tam nie było. Kłamie. Zdjęcia satelitarne z …………………… pokazują, że ciała leżały już prędzej.  
+
+
+
+https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha_przed_wojna.mp4?raw=true
+
+https://user-images.githubusercontent.com/101053692/162641751-618b75d6-d5e4-4495-9e87-d1a14498d1ba.mp4
 
 
 Ponoć gdzieś jest filmik z dronu o Buczy. Można by dodać. 
@@ -44,7 +50,10 @@ I drugi …………..
 Nie jestem gościem, który pisze jakąś propagandę. Używam filmów ogólnodostępnych z internetu. Włączcie myślenie i poszukajcie prawdy w internecie. Czemu inne państwa to widzą a wy tego nie widzicie? Roskomnadzor nie wszystko jeszcze wam zablokował. Jeszcze nie wszystko ukrył. Jeszcze możesz sam to sprawdzić i mieć na to wpływ. Rosjanie przestańcie oglądać telewizję. Nie jesteś świadomy, że nie macie wolnych mediów? Czemu nadal stoicie za komuną i gościem z KGB? Po 22 zapomniałeś, że może być lepiej?
 
 Koniec wojny to nie będzie tylko zakończenie specjalnej akcji wojskowej. Będziecie musieli też zapłacić reperacje za tą napaść. Stać was na to? Jak 35 milionów Rosjan mieszka w domach lub mieszkaniach bez wewnętrznych toalet, 47 milionów nie ma ciepłej wody, 29 milionów nie ma bieżącej wody w swoich mieszkaniach, a 22 miliony nie mają ogrzewania.
-.
+
+https://github.com/whatsupW/whatsupW/blob/main/Poverty_in_Russia.md
+
+
 Za taki naród chcecie być uznawani w przyszłości, nawet po wojnie to co zostanie w historii i świadomości innych krajów. Nie móc nigdzie wyjechać. Chcenie być postrzegany jako ludobójcy naród który nie powinien innych krajów odwiedzać. Chcecie sami się odseparować, wykluczyć? Bo na to teraz zasługujecie widząc waszą bierność. Czym szybciej to zmienicie to mniejsze będą konsekwencje
 
 Za ludobójstwo przed Trybunałem Norymberskim odpowie nie tylko Putin, ale też jego generałowie, żołnierze i żony nagrane na przechwyconych rozmowach telefonicznych. 
@@ -58,20 +67,3 @@ Co? Robi się coraz bardziej niebezpieczniej? Zaczyna coś wybuchać? Od 2 miesi
 To nie jest żaden film grozy ani propaganda. To jest prawda, o której ty nie chcesz wiedzieć przez twoje lenistwo? Czy głupotę?
 Albo
 To nie jest żaden film grozy ani propaganda. To jest prawda, o której ty nie chcesz wiedzieć. Nie wiem za jakich ludzi mam was wziąć. Leni, bo nie chcecie sami poszukać prawdy a oglądasz tylko to na co ci hutin pozwala. Chamów, którzy ignorują co się dzieje. Rusistów, bo sami to wszystko robicie?
-
-
-
-
-
-Tu mam jeszcze zajawki ale nie wiem gdzie wkleić?
-
-Ile jeszcze ludzi musi umrzeć? Czy chcecie by była III wojna światowa?
- 
-Żal mi was rosjanie cały świat zmienia o was zdanie.
-
-Szkoda, że nie macie jaj i sami nie chcecie tego powstrzymać. 
-
- A  skutkiem misji specjalnej będzie III wojna światowa. 
-
-
-Jest Was coraz więcej. 
