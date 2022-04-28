@@ -71,8 +71,18 @@ Za ludobójstwo przed Trybunałem Norymberskim odpowie nie tylko Putin, ale też
 
 Jak zaczniecie protestować to zmienicie rząd i zmienicie ustrój polityczny. A co za tym idzie, nie będziecie ścigani za protestowanie. Ludzie z Sibiru będą wolni. Może dużo świat oczekuje, ale to wy możecie więcej zmienić dla siebie.
 
+20.04.2022 Bolgorad, skład amunicji.
 
-To chcę użyć jak znajdę miejsca gdzie w rosji coś wybuchło. 
+21 kwietnia Niemal doszczętnie spłonął Dmitriewski Zakład Chemiczny w Kineszmie na wschód od Moskwy
+
+21 kwietnia Wojskowy instytut badawczy ministerstwa obrony Rosji w Twerze wybuchł duży pożar, w wyniku którego zginęło 17 osób, a 27 zostało rannych
+
+24 na 25 kwietnia w rosyjskim Briańsku, wybuchły potężne pożary. Płonie m.in. magazyn ropy naftowej, bazy Transnieft-Drużba
+
+O 2 w nocy, 25 kwietnia, Obwod Briański pożar pod adresem: Briański, dzielnica Fokinski, ulica Moskiewska. Skład paliw
+
+25 kwietnia pożar wybuchł w bazie lotniczej w Ussurujsku, w 323. Lotniczym Zakładzie Remontowym w bazie Wozdwiżenka
+
 Co? Robi się coraz bardziej niebezpieczniej? Zaczyna coś wybuchać? Od 2 miesięcy gotujecie taki los Ukrainie. Może przyjrzycie na oczy? Jeżeli będziecie dalej biernie siedzieć i oglądać waszą propagandową telewizję to będziecie mieli tak samo jak Ukraina w święta Wielkanocy. Mało wam wybuchów?
 
 To nie jest żaden film grozy ani propaganda. To jest prawda, o której ty nie chcesz wiedzieć przez twoje lenistwo? Czy głupotę?
