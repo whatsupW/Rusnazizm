@@ -79,15 +79,23 @@ Jak zaczniecie protestować to zmienicie rząd i zmienicie ustrój polityczny. A
 
 21 kwietnia Wojskowy instytut badawczy ministerstwa obrony Rosji w Twerze wybuchł duży pożar, w wyniku którego zginęło 17 osób, a 27 zostało rannych
 
+[Tver Instytut badawczy](https://github.com/whatsupW/Rusnazizm/blob/main/1/Tver.mp4?raw=true)
+
+https://user-images.githubusercontent.com/101053692/165711181-0c9c975d-6488-4f77-973f-143d249503df.mp4
+
 24 na 25 kwietnia w rosyjskim Briańsku, wybuchły potężne pożary. Płonie m.in. magazyn ropy naftowej, bazy Transnieft-Drużba
 
 O 2 w nocy, 25 kwietnia, Obwod Briański pożar pod adresem: Briański, dzielnica Fokinski, ulica Moskiewska. Skład paliw
+
+[Braińsk skład paliw - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Bryansk.mp4?raw=true)
+
+https://user-images.githubusercontent.com/101053692/165711096-6000994e-8af5-4d89-a883-e6c87c0bf2e0.mp4
 
 25 kwietnia pożar wybuchł w bazie lotniczej w Ussurujsku, w 323. Lotniczym Zakładzie Remontowym w bazie Wozdwiżenka
 
 28 kwiecień W #Moskwie płonie budowa centrum medycznego. Informują o tym mieszkańcy miasta. Dziś w nocy na jednej ze stołecznych ulic spłonęło również 7 samochodów
 
-[Moskwa centrum medyczne płonie- link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Moskwa.mp4)
+[Moskwa centrum medyczne płonie- link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Moskwa.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/165710684-f648a092-68e5-4124-b3bd-f6ec18159368.mp4
 
