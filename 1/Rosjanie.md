@@ -23,3 +23,9 @@ https://user-images.githubusercontent.com/101053692/165827098-6d48f03f-7605-4f5f
 
 https://user-images.githubusercontent.com/101053692/165827132-8975637f-07b4-43e4-9cf8-91a01384c01e.MP4
 
+## Back to main page
+Powrót do strony głównej
+
+[Rusnazizm strona główna - link](https://github.com/whatsupW/Rusnazizm/)
+
+[Stare posty - link](https://github.com/whatsupW)
