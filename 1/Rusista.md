@@ -9,9 +9,9 @@ https://user-images.githubusercontent.com/101053692/165628031-ab56e442-c79a-4d32
 https://github.com/whatsupW/whatsupW/blob/main/img/6/Novotoshkivske.mp4?raw=true?raw=true
 
 
-[Przechwycona rozmowa ruskich żołnierzy o znęcaniu się nad jeńcami i że ujdzie to im bezkarnie - link](https://user-images.githubusercontent.com/101053692/165636699-2a9fb5e9-8572-43cb-a624-bec7fe9f5fd2.mp4)
+[Film z drona o zniszczeniach Mariopolu - link](https://user-images.githubusercontent.com/101053692/165636699-2a9fb5e9-8572-43cb-a624-bec7fe9f5fd2.mp4)
 
-https://github.com/whatsupW/Rusnazizm/blob/main/1/tortury.mp4?raw=true
+[Przechwycona rozmowa ruskich żołnierzy o znęcaniu się nad jeńcami i że ujdzie to im bezkarnie - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/tortury.mp4?raw=true)
 
 
 Nawet jak wasze wojska się wycofują to zaminowują pola, drogi a nawet dziecięce zabawki.
@@ -21,7 +21,7 @@ To jest normalne? Tak postępuje cywilizowany naród? Okradając zabitych cywili
 
 Putin zbawiciel? Nagle chce ratować ludzi od nazistów? To czemu sam nie pozwala na wolność słowa, czemu sam wywozi ludzi na Syberię jak są przeciwni komunizmowi? Nie daje ci to do myślenia? Nawet nie znacie pochodzenia słowa nazizm. Nazizm to rasistowska, antykomunistyczna, antydemokratyczna i antysemicka ideologia. Sprawdź w Wikipedii jak jeszcze masz. Przecież to wszystko kłuci się z polityką Putina. Czemu przemawia przez was nienawiść. Nienawiść do narodu ukraińskiego? Oprócz nazistów tam też są dzieci? 
 
-[Przechwycona rozmowa ruskich żołnierzy, że zabije babcie z dziećmi jak będą wracać - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/tortury.mp4?raw=true)
+[Przechwycona rozmowa ruskich żołnierzy, że zabije babcie z dziećmi jak będą wracać - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Babcia_z_dziecmi.mp4?raw=true)
 
 Sam jest rasistą bo wzmógł w was nienawiść do ukraińców jak i antysamitą bo do żydów. A co do antykomuny antydemokracji to nawet wy nie możenie tego zrobić w własnym kraju. Więc gdzie jest to wasze nie rozumienie Ukraińców jak nawet nie umiecie użyć odpowiedniego słowa, na które nakierował was Putin?
 
