@@ -23,7 +23,7 @@ Czy to on nie jest nazistą. Na razie świat oskarża tylko go. Ale to wasze woj
 
 [Przechwycona rozmowa ruskich żołnierzy o znęcaniu się nad jeńcami i że ujdzie to im bezkarnie - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/tortury.mp4?raw=true)
 
-# Hitler miał swastykę wy macie "Z". Mało macie znaków. Dalej będziesz się upierał, że to świat?  Po wycofaniu się Wojsk rosyjskich w Buczy cała prawda wyszła na jaw. Co robią Rosjanie. Jak mordują, gwałcą, jak znęcają się nad jeńcami. Groby zbiorowe. Tak nie postępuje cywilizowany naród. Mamy XXI wiek. Jak zauważyliście media mają dużą moc. Putin mówi, że to nie wy zabijaliście bo 1 kwietnia już was tam nie było. Kłamie. 
+### Hitler miał swastykę wy macie "Z". Mało macie znaków. Dalej będziesz się upierał, że to świat?  Po wycofaniu się Wojsk rosyjskich w Buczy cała prawda wyszła na jaw. Co robią Rosjanie. Jak mordują, gwałcą, jak znęcają się nad jeńcami. Groby zbiorowe. Tak nie postępuje cywilizowany naród. Mamy XXI wiek. Jak zauważyliście media mają dużą moc. Putin mówi, że to nie wy zabijaliście bo 1 kwietnia już was tam nie było. Kłamie. 
 
 
 [Zdjęcia satelitarne z Buczy pokazują, że ciała leżały już prędzej - link](https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucza_cywile.mp4?raw=true)
@@ -34,15 +34,11 @@ https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha_przed_wojna.mp4?raw=t
 
 https://user-images.githubusercontent.com/101053692/162641751-618b75d6-d5e4-4495-9e87-d1a14498d1ba.mp4
 
-
-Ponoć gdzieś jest filmik z dronu o Buczy. Można by dodać. 
-
-Czemu chcecie zapisać się w historii jako drugi  naród, który morduje ludzi? Dla świata Hitler to już to samo co putin. W internecie pisane już jako Hutin
-
+### Czemu chcecie zapisać się w historii jako drugi  naród, który morduje ludzi? Dla świata Hitler to już to samo co putin. W internecie pisane już jako Hutin
 Już pojawia się nowe słowo związane z waszym biernym podejściem do tego – Rusynizm. Nie nazizm a rusinizm.  Wasza głupota i bierność przeniesie całą winę z niego na Rosjan.   To kwestia czasu byście byli wykluczeni w świecie i o to posądzeni. 
  
 
-Zarzucacie innym Państwom, że ingerują w pomoc Ukraińcom? Pomoc, która jest humanitarna? 4,5 miliona matek z dziećmi wyemigrowały do innych krajów, do domów prywatnych. Nie muszą starać się o wyżywienie czy też dach nad głową. Nie do jakiś obozów. Cywilizowane kraje po prostu tak postępują. A wy widzicie tylko to że świat bezbronnym dostarcza broni.
+### Zarzucacie innym Państwom, że ingerują w pomoc Ukraińcom? Pomoc, która jest humanitarna? 4,5 miliona matek z dziećmi wyemigrowały do innych krajów, do domów prywatnych. Nie muszą starać się o wyżywienie czy też dach nad głową. Nie do jakiś obozów. Cywilizowane kraje po prostu tak postępują. A wy widzicie tylko to że świat bezbronnym dostarcza broni.
 Świat nie włączył  by się w pomaganie Ukrainie, gdyby to była niby misja specjalna, o której mówił  putin. To co teraz się dzieje to naprawdę wojna. Wejdź sprawdź i zobacz w internecie.
 
 Fakty o zbrodniach armii rosyjskiej na ludności cywilnej Ukrainy Trybunał Norymberski.
