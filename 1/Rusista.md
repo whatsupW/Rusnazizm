@@ -71,6 +71,8 @@ Za ludobójstwo przed Trybunałem Norymberskim odpowie nie tylko Putin, ale też
 
 Jak zaczniecie protestować to zmienicie rząd i zmienicie ustrój polityczny. A co za tym idzie, nie będziecie ścigani za protestowanie. Ludzie z Sibiru będą wolni. Może dużo świat oczekuje, ale to wy możecie więcej zmienić dla siebie.
 
+### Wybuchy i pożary
+
 20.04.2022 Bolgorad, skład amunicji.
 
 21 kwietnia Niemal doszczętnie spłonął Dmitriewski Zakład Chemiczny w Kineszmie na wschód od Moskwy
@@ -83,7 +85,9 @@ O 2 w nocy, 25 kwietnia, Obwod Briański pożar pod adresem: Briański, dzielnic
 
 25 kwietnia pożar wybuchł w bazie lotniczej w Ussurujsku, w 323. Lotniczym Zakładzie Remontowym w bazie Wozdwiżenka
 
-Co? Robi się coraz bardziej niebezpieczniej? Zaczyna coś wybuchać? Od 2 miesięcy gotujecie taki los Ukrainie. Może przyjrzycie na oczy? Jeżeli będziecie dalej biernie siedzieć i oglądać waszą propagandową telewizję to będziecie mieli tak samo jak Ukraina w święta Wielkanocy. Mało wam wybuchów?
+28 kwiecień W #Moskwie płonie budowa centrum medycznego. Informują o tym mieszkańcy miasta. Dziś w nocy na jednej ze stołecznych ulic spłonęło również 7 samochodów
+
+## Co? Robi się coraz bardziej niebezpieczniej? Zaczyna coś wybuchać? Od 2 miesięcy gotujecie taki los Ukrainie. Może przyjrzycie na oczy? Jeżeli będziecie dalej biernie siedzieć i oglądać waszą propagandową telewizję to będziecie mieli tak samo jak Ukraina w święta Wielkanocy. Mało wam wybuchów?
 
 To nie jest żaden film grozy ani propaganda. To jest prawda, o której ty nie chcesz wiedzieć przez twoje lenistwo? Czy głupotę?
 Albo
