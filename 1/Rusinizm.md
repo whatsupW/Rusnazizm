@@ -103,6 +103,16 @@ https://user-images.githubusercontent.com/101053692/165711957-270a31e4-6937-47e0
 
 https://user-images.githubusercontent.com/101053692/165710684-f648a092-68e5-4124-b3bd-f6ec18159368.mp4
 
+28 kwiecień Iszym Centrum handlowe
+
+[Iszym Centrum handlowe - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Ishim.mp4?raw=true?raw=true)
+
+
+
+https://user-images.githubusercontent.com/101053692/165767873-de969166-69da-41e7-84b5-00e51070e767.mp4
+
+
+
 ## Co? Robi się coraz bardziej niebezpieczniej? Zaczyna coś wybuchać? Od 2 miesięcy gotujecie taki los Ukrainie. Może przyjrzycie na oczy? Jeżeli będziecie dalej biernie siedzieć i oglądać waszą propagandową telewizję to będziecie mieli tak samo jak Ukraina w święta Wielkanocy. Mało wam wybuchów?
 
 To nie jest żaden film grozy ani propaganda. To jest prawda, o której ty nie chcesz wiedzieć przez twoje lenistwo? Czy głupotę?
