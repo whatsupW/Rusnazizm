@@ -93,6 +93,10 @@ https://user-images.githubusercontent.com/101053692/165711096-6000994e-8af5-4d89
 
 25 kwietnia pożar wybuchł w bazie lotniczej w Ussurujsku, w 323. Lotniczym Zakładzie Remontowym w bazie Wozdwiżenka
 
+[Ussuriysk – (Уссури́йск) baza lotnicza](https://github.com/whatsupW/Rusnazizm/blob/main/1/Usuryjsk.mp4?raw=true)
+
+https://user-images.githubusercontent.com/101053692/165711957-270a31e4-6937-47e0-a5d1-76f2c2065da4.mp4
+
 28 kwiecień W #Moskwie płonie budowa centrum medycznego. Informują o tym mieszkańcy miasta. Dziś w nocy na jednej ze stołecznych ulic spłonęło również 7 samochodów
 
 [Moskwa centrum medyczne płonie- link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Moskwa.mp4?raw=true)
