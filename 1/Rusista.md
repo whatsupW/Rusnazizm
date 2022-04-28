@@ -6,19 +6,11 @@ Cały czas mówicie, że to Ukraińcy są nazistami. Nawet gdyby to co Wam do te
 
 https://user-images.githubusercontent.com/101053692/165628031-ab56e442-c79a-4d32-bff6-1ea7799387dc.mp4
 
-[Film z drona Nowotorsk - link](https://github.com/whatsupW/whatsupW/blob/main/img/6/Novotoshkivske.mp4?raw=true?raw=true
+[Film z drona Nowotorsk - link](https://github.com/whatsupW/whatsupW/blob/main/img/6/Novotoshkivske.mp4?raw=true?raw=true)
 
 [Film z drona o zniszczeniach Mariopolu 2 - link](https://user-images.githubusercontent.com/101053692/165636699-2a9fb5e9-8572-43cb-a624-bec7fe9f5fd2.mp4)
 
-[Przechwycona rozmowa ruskich żołnierzy o znęcaniu się nad jeńcami i że ujdzie to im bezkarnie - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/tortury.mp4?raw=true)
-
-
-Nawet jak wasze wojska się wycofują to zaminowują pola, drogi a nawet dziecięce zabawki.
-To jest normalne? Tak postępuje cywilizowany naród? Okradając zabitych cywili i gwałcąc kobiety, dzieci (nawet 2letnie?)
-
-
-
-Putin zbawiciel? Nagle chce ratować ludzi od nazistów? To czemu sam nie pozwala na wolność słowa, czemu sam wywozi ludzi na Syberię jak są przeciwni komunizmowi? Nie daje ci to do myślenia? Nawet nie znacie pochodzenia słowa nazizm. Nazizm to rasistowska, antykomunistyczna, antydemokratyczna i antysemicka ideologia. Sprawdź w Wikipedii jak jeszcze masz. Przecież to wszystko kłuci się z polityką Putina. Czemu przemawia przez was nienawiść. Nienawiść do narodu ukraińskiego? Oprócz nazistów tam też są dzieci? 
+Nawet jak wasze wojska się wycofują to zaminowują pola, drogi a nawet dziecięce zabawki. To jest normalne? Tak postępuje cywilizowany naród? Okradając zabitych cywili i gwałcąc kobiety, dzieci (nawet 2letnie?) Putin zbawiciel? Nagle chce ratować ludzi od nazistów? To czemu sam nie pozwala na wolność słowa, czemu sam wywozi ludzi na Syberię jak są przeciwni komunizmowi? Nie daje ci to do myślenia? Nawet nie znacie pochodzenia słowa nazizm. Nazizm to rasistowska, antykomunistyczna, antydemokratyczna i antysemicka ideologia. Sprawdź w Wikipedii jak jeszcze masz. Przecież to wszystko kłuci się z polityką Putina. Czemu przemawia przez was nienawiść. Nienawiść do narodu ukraińskiego? Oprócz nazistów tam też są dzieci? 
 
 [Przechwycona rozmowa ruskich żołnierzy, że zabije babcie z dziećmi jak będą wracać - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Babcia_z_dziecmi.mp4?raw=true)
 
@@ -29,15 +21,12 @@ Putinowi nie zależy na wyzwoleniu Ukrainy od nazistów czy też rosjan z teren�
 Nie interesują go ludzie co tam żyją. Putin dąży do wymordowania narodu Ukraińskiego. Już wywozi z Dombasu na Sybir. 
 Czy to on nie jest nazistą. Na razie świat oskarża tylko go. Ale to wasze wojsko bombarduje budynki cywilne i morduje cywili.Czemu przemawia przez was nienawiść. Nienawiść do narodu ukraińskiego? Oprócz nazistów tam też są dzieci?
 
-# Hitler miał swastykę wy macie "Z". Mało macie znaków. Dalej będziesz się upierał, że to świat?  
+[Przechwycona rozmowa ruskich żołnierzy o znęcaniu się nad jeńcami i że ujdzie to im bezkarnie - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/tortury.mp4?raw=true)
 
-https://github.com/whatsupW/Rusnazizm/blob/main/1/Babcia_z_dziecmi.mp4
-
-
-Po wycofaniu się Wojsk rosyjskich w Buczy cała prawda wyszła na jaw. Co robią Rosjanie. Jak mordują, gwałcą, jak znęcają się nad jeńcami. Groby zbiorowe. Tak nie postępuje cywilizowany naród. Mamy XXI wiek. Jak zauważyliście media mają dużą moc. Putin mówi, że to nie wy zabijaliście bo 1 kwietnia już was tam nie było. Kłamie. 
+# Hitler miał swastykę wy macie "Z". Mało macie znaków. Dalej będziesz się upierał, że to świat?  Po wycofaniu się Wojsk rosyjskich w Buczy cała prawda wyszła na jaw. Co robią Rosjanie. Jak mordują, gwałcą, jak znęcają się nad jeńcami. Groby zbiorowe. Tak nie postępuje cywilizowany naród. Mamy XXI wiek. Jak zauważyliście media mają dużą moc. Putin mówi, że to nie wy zabijaliście bo 1 kwietnia już was tam nie było. Kłamie. 
 
 
-## Zdjęcia satelitarne z …………………… pokazują, że ciała leżały już prędzej.  
+[Zdjęcia satelitarne z Buczy pokazują, że ciała leżały już prędzej - link](https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucza_cywile.mp4?raw=true)
 
 https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha_przed_wojna.mp4?raw=true
 
