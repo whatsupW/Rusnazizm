@@ -87,6 +87,10 @@ O 2 w nocy, 25 kwietnia, Obwod Briański pożar pod adresem: Briański, dzielnic
 
 28 kwiecień W #Moskwie płonie budowa centrum medycznego. Informują o tym mieszkańcy miasta. Dziś w nocy na jednej ze stołecznych ulic spłonęło również 7 samochodów
 
+[Moskwa centrum medyczne płonie- link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Moskwa.mp4)
+
+https://user-images.githubusercontent.com/101053692/165710684-f648a092-68e5-4124-b3bd-f6ec18159368.mp4
+
 ## Co? Robi się coraz bardziej niebezpieczniej? Zaczyna coś wybuchać? Od 2 miesięcy gotujecie taki los Ukrainie. Może przyjrzycie na oczy? Jeżeli będziecie dalej biernie siedzieć i oglądać waszą propagandową telewizję to będziecie mieli tak samo jak Ukraina w święta Wielkanocy. Mało wam wybuchów?
 
 To nie jest żaden film grozy ani propaganda. To jest prawda, o której ty nie chcesz wiedzieć przez twoje lenistwo? Czy głupotę?
