@@ -11,7 +11,6 @@ https://user-images.githubusercontent.com/101053692/165826970-c8b5c5da-3489-40e5
 
 
 
-
 [Tłumaczy - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/3.mp4?raw=true)
 
 
