@@ -6,7 +6,7 @@ Cały czas mówicie, że to Ukraińcy są nazistami. Nawet gdyby to co Wam do te
 
 https://user-images.githubusercontent.com/101053692/165628031-ab56e442-c79a-4d32-bff6-1ea7799387dc.mp4
 
-https://github.com/whatsupW/whatsupW/blob/main/img/6/Novotoshkivske.mp4?raw=true?raw=true
+[Film z drona Nowotorsk - link](https://github.com/whatsupW/whatsupW/blob/main/img/6/Novotoshkivske.mp4?raw=true?raw=true
 
 [Film z drona o zniszczeniach Mariopolu 2 - link](https://user-images.githubusercontent.com/101053692/165636699-2a9fb5e9-8572-43cb-a624-bec7fe9f5fd2.mp4)
 
