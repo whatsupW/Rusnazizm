@@ -23,6 +23,10 @@ Czy to on nie jest nazistą? Na razie świat oskarża tylko jego. Wasze wojsko t
 
 [Przechwycona rozmowa ruskich żołnierzy o znęcaniu się nad jeńcami i że ujdzie to im bezkarnie - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/tortury.mp4?raw=true)
 
+https://github.com/whatsupW/Rusnazizm/blob/main/1/z.jpg?raw=true
+
+![z](https://user-images.githubusercontent.com/101053692/165835852-24641baa-0567-4910-b4e6-4e6bfaaf070f.jpg)
+
 ### Hitler miał swastykę, wy macie "Z". Czyli jesteście, jak hitlerowcy, jak naziści. Po wycofaniu się wojsk rosyjskich z Buczy cała prawda o waszym wojsku wyszła na jaw. Okazało się, że rosyjscy żołnierze to barbarzyńcy, którzy mordują, gwałcą, znęcają się nad jeńcami, chowają ludzi w zbiorowych grobach. Tak nie postępuje cywilizowany naród. Mamy XXI wiek. Jak zauważyliście media mają dużą moc. Putin mówi, że to nie wojsko rosyjskie zabiło tych wszystkich cywilów, bo 1 kwietnia już was tam nie było. Kłamie. Zdjęcia satelitarne pokazują, że ciała leżały na ulicach Buczy jeszcze przed 1 kwietnia. 
 
 [Zdjęcia satelitarne z Buczy pokazują, że ciała leżały już prędzej - link](https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucza_cywile.mp4?raw=true)
