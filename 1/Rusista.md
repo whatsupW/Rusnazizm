@@ -28,6 +28,8 @@ Czy to on nie jest nazistą. Na razie świat oskarża tylko go. Ale to wasze woj
 
 [Zdjęcia satelitarne z Buczy pokazują, że ciała leżały już prędzej - link](https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucza_cywile.mp4?raw=true)
 
+https://user-images.githubusercontent.com/101053692/165706937-f4ed89f3-fd32-4dc1-b57a-81cdffcdf27b.mp4
+
 https://github.com/whatsupW/whatsupW/blob/main/img/3/Bucha_przed_wojna.mp4?raw=true
 
 https://user-images.githubusercontent.com/101053692/162641751-618b75d6-d5e4-4495-9e87-d1a14498d1ba.mp4
