@@ -50,6 +50,15 @@ Już pojawia się nowe słowo związane z waszym biernym podejściem do tego –
 Zarzucacie innym Państwom, że ingerują w pomoc Ukraińcom? Pomoc, która jest humanitarna? 4,5 miliona matek z dziećmi wyemigrowały do innych krajów, do domów prywatnych. Nie muszą starać się o wyżywienie czy też dach nad głową. Nie do jakiś obozów. Cywilizowane kraje po prostu tak postępują. A wy widzicie tylko to że świat bezbronnym dostarcza broni.
 Świat nie włączył  by się w pomaganie Ukrainie, gdyby to była niby misja specjalna, o której mówił  putin. To co teraz się dzieje to naprawdę wojna. Wejdź sprawdź i zobacz w internecie.
 
+Fakty o zbrodniach armii rosyjskiej na ludności cywilnej Ukrainy Trybunał Norymberski.
+
+https://t.me/kharkiv_trybunal_bot
+
+```
+Факты преступлений армии РФ против мирного населения Украины. Нюрнбергский трибунал 
+https://t.me/kharkiv_trybunal_bot
+```
+
  A wy? Czemu sami nie pozwolicie żyć normalnym ludziom.  Czemu święta wielkanocne Ukraina musiała spędzić z waszymi kulami i bombami nad głową? Czemu przemawia przez was nienawiść. Nienawiść do narodu ukraińskiego? Nawet w dzieciach widzicie nazistów? A Ukrainki każecie gwałcić?!
 Dziwicie się czemu świat nagle jest za małym ukraińskim narodem. 
 Bo mamy demokrację i dostęp do wolnych mediów. Widzimy tą dzicz, która napada na suwerenny naród. Wojska putina, które zabija i tłumaczy, że to oni pomagają.
