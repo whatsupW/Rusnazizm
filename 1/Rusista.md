@@ -2,14 +2,13 @@
 
 Cały czas mówicie, że to Ukraińcy są nazistami. Nawet gdyby to co Wam do tego. Jak rosjanom w Ukrainie  przeszkadzało, że tam źle się żyje to mogli wyjechać. Czemu ich nie przeprowadziliście do siebie lub nie zrobił referendum demokratycznego. Patrz jak teraz wygląda wybawiony Mariopul.
 
-https://github.com/whatsupW/whatsupW/blob/main/img/3/Mariupol.mp4?raw=true
+[Film z drona o zniszczeniach Mariopolu - link](https://github.com/whatsupW/whatsupW/blob/main/img/3/Mariupol.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/165628031-ab56e442-c79a-4d32-bff6-1ea7799387dc.mp4
 
 https://github.com/whatsupW/whatsupW/blob/main/img/6/Novotoshkivske.mp4?raw=true?raw=true
 
-
-[Film z drona o zniszczeniach Mariopolu - link](https://user-images.githubusercontent.com/101053692/165636699-2a9fb5e9-8572-43cb-a624-bec7fe9f5fd2.mp4)
+[Film z drona o zniszczeniach Mariopolu 2 - link](https://user-images.githubusercontent.com/101053692/165636699-2a9fb5e9-8572-43cb-a624-bec7fe9f5fd2.mp4)
 
 [Przechwycona rozmowa ruskich żołnierzy o znęcaniu się nad jeńcami i że ujdzie to im bezkarnie - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/tortury.mp4?raw=true)
 
