@@ -128,3 +128,12 @@ https://user-images.githubusercontent.com/101053692/165832894-7c9a3ea4-98ff-462c
 ## Co? Robi się coraz bardziej niebezpieczniej? Zaczyna coś wybuchać? Od 2 miesięcy gotujecie taki los Ukrainie. Może przyjrzycie na oczy? Jeżeli będziecie dalej biernie siedzieć i oglądać waszą propagandową telewizję to będziecie mieli tak samo jak Ukraina w Święta Wielkanocne. Mało wam wybuchów?
 
 To nie jest żaden film grozy ani propaganda. To jest prawda, o której ty nie chcesz wiedzieć przez twoje lenistwo czy głupotę? Nie wiem za jakich ludzi mam was wziąć. Leni, bo nie chcecie sami poszukać prawdy, a oglądacie tylko to, na co ci hutin pozwala? Chamów, którzy ignorują co się dzieje? Rusistów i ludobójców, bo zgotowaliście taki los niewinnym ludziom?
+
+
+  
+## Back to main page
+Powrót do strony głównej
+
+[Rusnazizm strona główna - link](https://github.com/whatsupW/Rusnazizm/)
+
+[Stare posty - link](https://github.com/whatsupW)
