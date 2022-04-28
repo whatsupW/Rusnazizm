@@ -3,6 +3,10 @@
 
 Cały czas mówicie, że to Ukraińcy są nazistami. Nawet gdyby tak było, co Wam do tego? Gdyby ludziom rosyjskojęzycznym źle się żyło w Ukrainie, to mogliby wyjechać do Rosji. Ludzie tego nie zrobili, bo im się żyło dobrze. Nikt nikogo nie prześladował! Patrz jak teraz wygląda „wybawiony” Mariopul. 
 
+```
+Вы постоянно говорите, что украинцы, это нацисты. Даже если бы так было, какое ваше дело? Если бы русскоговорящим было плохо в Украине, они могли бы уехать в Россию. Люди этого не сделали, потому что им хорошо живется в Украине. Никто никого не преследовал! Смотри, как выглядит „освобожденный от нацистов” Мариуполь.
+```
+
 [Film z drona o zniszczeniach Mariopolu - link](https://github.com/whatsupW/whatsupW/blob/main/img/3/Mariupol.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/165628031-ab56e442-c79a-4d32-bff6-1ea7799387dc.mp4
@@ -13,13 +17,18 @@ https://user-images.githubusercontent.com/101053692/165628031-ab56e442-c79a-4d32
 
 Nawet, jak wasze wojska się wycofują to minują pola, drogi, nawet dziecięce zabawki. To jest normalne? Tak postępuje cywilizowany naród? Okradając zabitych cywili i gwałcąc kobiety, dzieci (nawet 2letnie?) Putin zbawiciel? Nagle chce ratować ludzi od nazistów? To czemu sam nie pozwala na wolność słowa, czemu sam wywozi ludzi na Syberię jak są przeciwni komunizmowi? Nie daje ci to do myślenia? Nawet nie znacie pochodzenia słowa nazizm. Nazizm to rasistowska, antykomunistyczna, antydemokratyczna i antysemicka ideologia. Sprawdź w Wikipedii, jak jeszcze ją masz. Przecież to wszystko kłóci się z polityką Putina. Czemu przemawia przez was nienawiść? 
 
+```
+Даже если ваши войска отступают, они минируют поля, дороги, даже детские игрушки. Это по-твоему нормально? Так делает цивилизованный народ? Цивилизованный народ обворовывает убитых людей и насилует женщин и детей (даже 2 летних детей)? Путин спаситель? Вдруг хочет спасать людей от нацистов? Почему, тогда сам, не разрешает свободу слова, почему вывозит людей в Сибирь, если они против коммунизма? Это тебя не наталкивает ни на какие мысли? Вы же даже не знаете происхождения слова нацизм. Нацизм — это расистская, антикоммунистическая, антидемократическая и антисемитская идеология. Проверь в Википедии, если она еще у тебя есть. Это все идет в разрез с политикой Путина. 
+```
+
 [Przechwycona rozmowa ruskich żołnierzy, że zabije babcie z dziećmi jak będą wracać - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Babcia_z_dziecmi.mp4?raw=true)
 
-Sam jest rasistą, bo wzmógł w was nienawiść do Ukraińców. Jest również antysemitą, bo Żydów też nienawidzi. 
+Sam jest rasistą, bo wzmógł w was nienawiść do Ukraińców. Jest również antysemitą, bo Żydów też nienawidzi. Putinowi nie zależy na wyzwoleniu Ukrainy od nazistów czy też rosjan z terenów Donbasu i Lugańska. To jest tylko przykrywka. Putin kieruje się imperializmem, chce po prostu zająć terytorium Ukrainy. Napadł na Zełeńskiego, bo ten mu nie uległ jak Łukaszenko. Nie interesują go ludzie, co tam żyją. Putin dąży do wymordowania narodu ukraińskiego. Już wywozi z Donbasu na Sybir.  Czy to on nie jest nazistą? Na razie świat oskarża tylko jego. Wasze wojsko to również naziści, bo bombardują budynki cywilne i mordują cywili. Nazistami jesteście wy wszyscy, bo milczycie.
 
-Putinowi nie zależy na wyzwoleniu Ukrainy od nazistów czy też rosjan z terenów Donbasu i Lugańska. To jest tylko przykrywka. Putin kieruje się imperializmem, chce po prostu zająć terytorium Ukrainy. Napadł na Zełeńskiego, bo ten mu nie uległ jak Łukaszenko. 
-Nie interesują go ludzie, co tam żyją. Putin dąży do wymordowania narodu ukraińskiego. Już wywozi z Donbasu na Sybir. 
-Czy to on nie jest nazistą? Na razie świat oskarża tylko jego. Wasze wojsko to również naziści, bo bombardują budynki cywilne i mordują cywili. Nazistami jesteście wy wszyscy, bo milczycie.
+```
+Путин сам расист, потому что породил в вас ненависть к украинцам. Он и антисемит, потому что евреев он тоже ненавидит. 
+
+```
 
 [Przechwycona rozmowa ruskich żołnierzy o znęcaniu się nad jeńcami i że ujdzie to im bezkarnie - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/tortury.mp4?raw=true)
 
