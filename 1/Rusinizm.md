@@ -79,9 +79,13 @@ https://t.me/kharkiv_trybunal_bot
 
 https://user-images.githubusercontent.com/101053692/164982227-c470a443-af03-4377-818d-516b3057bb14.mp4
 
-[Tłumaczy - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/4.MP4?raw=true)
+[Tłumaczy - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/4.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/165827132-8975637f-07b4-43e4-9cf8-91a01384c01e.MP4
+
+[Tłumaczy - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/3.mp4?raw=true)
+
+https://user-images.githubusercontent.com/101053692/165827098-6d48f03f-7605-4f5f-99b6-f0aa5a45e368.mp4
 
 #### Nie jestem człowiekiem który rozpowszechnia jakąś propagandę. Używam filmów ogólnodostępnych z internetu. Włączcie myślenie i poszukajcie prawdy w internecie. Czemu inne państwa to widzą, a wy tego nie widzicie? Roskomnadzor nie wszystko jeszcze wam zablokował. Jeszcze nie wszystko ukrył. Jeszcze możesz sam to sprawdzić i mieć na to wpływ. Rosjanie przestańcie oglądać telewizję. Nie jesteś świadomy, że nie macie wolnych mediów? Czemu nadal wspieracie komunizm i KGBistę? Po 22.latach zapomniałeś, że może być lepiej?
 
