@@ -79,10 +79,6 @@ https://t.me/kharkiv_trybunal_bot
 
 https://user-images.githubusercontent.com/101053692/164982227-c470a443-af03-4377-818d-516b3057bb14.mp4
 
-[Tłumaczy - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/1.mp4?raw=true)
-
-https://user-images.githubusercontent.com/101053692/165826970-c8b5c5da-3489-40e5-b794-d518e9b48121.mp4
-
 [Tłumaczy - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/4.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/165827132-8975637f-07b4-43e4-9cf8-91a01384c01e.MP4
@@ -152,17 +148,13 @@ April 28 7 cars with the letter Z burn in Moscow
 
 https://user-images.githubusercontent.com/101053692/165711181-0c9c975d-6488-4f77-973f-143d249503df.mp4
 
-
 [Briańsk skład paliw - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Bryansk.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/165711096-6000994e-8af5-4d89-a883-e6c87c0bf2e0.mp4
 
-
-
 [Ussuriysk – (Уссури́йск) baza lotnicza](https://github.com/whatsupW/Rusnazizm/blob/main/1/Usuryjsk.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/165711957-270a31e4-6937-47e0-a5d1-76f2c2065da4.mp4
-
 
 [Moskwa centrum medyczne płonie- link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Moskwa.mp4?raw=true)
 
