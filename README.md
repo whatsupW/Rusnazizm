@@ -1,6 +1,6 @@
 # Rusinizm
 
-[Rusinism - English version - Link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Rusinizm.md)
+[Rusinism - English version - Link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Rusinism.md)
 
 [Rusinizm - wersj polska - Link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Rusinizm.md)
 
