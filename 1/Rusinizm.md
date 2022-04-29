@@ -75,10 +75,6 @@ https://t.me/kharkiv_trybunal_bot
 Почему вы не даете нормально жить украинцам? Почему Пасху Украина должна была праздновать в подвалах, с российскими ракетами и бомбами над головой? Почему вы убиваете детей? Они тоже нацисты? Почему вы разрешаете насиловать украинских женщин? И после этого всего вы удивляетесь, что мир поддерживает Украину? Мир имеет свободный доступ с медиа и видит, что ваша армия, то есть нацисты и варвары, делают в независимой стране. 
 ```
 
-[Tłumaczy - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/1.mp4?raw=true)
-
-https://user-images.githubusercontent.com/101053692/165826970-c8b5c5da-3489-40e5-b794-d518e9b48121.mp4
-
 [Znany dziennikarz mówi jak naprawdę jest- link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Dziennikarz_m.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/164982227-c470a443-af03-4377-818d-516b3057bb14.mp4
