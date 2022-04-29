@@ -1,4 +1,4 @@
-# Rusinizm 
+# Rusinism 
 To english translated by google. It will improve tomorrow
 
 #### You keep saying that the Ukrainians are the Nazis. Even if it were so, what do you have to do with it? If Russian-speaking people did not live well in Ukraine, they could go to Russia. People didn't do it because they lived well. Nobody was stalking anyone! See how Mariopul is "saved" now. 
