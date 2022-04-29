@@ -75,13 +75,17 @@ https://t.me/kharkiv_trybunal_bot
 ```
 Почему вы не даете нормально жить украинцам? Почему Пасху Украина должна была праздновать в подвалах, с российскими ракетами и бомбами над головой? Почему вы убиваете детей? Они тоже нацисты? Почему вы разрешаете насиловать украинских женщин? И после этого всего вы удивляетесь, что мир поддерживает Украину? Мир имеет свободный доступ с медиа и видит, что ваша армия, то есть нацисты и варвары, делают в независимой стране. 
 ```
-[A well-known journalist tells what it really is- link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Dziennikarz_m.mp4?raw=true)
+[Znany dziennikarz mówi jak naprawdę jest- link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Dziennikarz_m.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/164982227-c470a443-af03-4377-818d-516b3057bb14.mp4
 
 [Tłumaczy - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/4.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/165827132-8975637f-07b4-43e4-9cf8-91a01384c01e.MP4
+
+[Tłumaczy - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/3.mp4?raw=true)
+
+https://user-images.githubusercontent.com/101053692/165827098-6d48f03f-7605-4f5f-99b6-f0aa5a45e368.mp4
 
 #### I am not a man who spreads some kind of propaganda. I use publicly available films from the Internet. Turn on your thinking and find the truth on the internet. Why do other countries see it and you can't see it? Roskomnadzor has not blocked everything for you yet. He hasn't hidden everything yet. You can still check it yourself and influence it. Russians, stop watching TV. Are you not aware that you don't have free media? Why are you still supporting communism and the KGBist? After 22 years, you forgot that it can get better?
 
