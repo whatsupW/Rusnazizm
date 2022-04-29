@@ -1,6 +1,8 @@
 # Rusinizm
 Рашизм
 
+## Część 1 w pierwszy dzień
+
 #### Cały czas mówicie, że to Ukraińcy są nazistami. Nawet gdyby tak było, co Wam do tego? Gdyby ludziom rosyjskojęzycznym źle się żyło w Ukrainie, to mogliby wyjechać do Rosji. Ludzie tego nie zrobili, bo im się żyło dobrze. Nikt nikogo nie prześladował! Patrz jak teraz wygląda „wybawiony” Mariopul. 
 
 ```
@@ -120,7 +122,7 @@ https://github.com/whatsupW/whatsupW/blob/main/Poverty_in_Russia.md
 ```
 
 
-#### Wybuchy i pożary
+## Część druga na drugi dzień lub po paru - Wybuchy i pożary
 
 20.04.2022 Bolgorad, skład amunicji.
 
