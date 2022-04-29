@@ -118,49 +118,48 @@ https://github.com/whatsupW/whatsupW/blob/main/Poverty_in_Russia.md
 #### Explosions and fires
 
 20/04/2022 Bolgorad, ammunition depot.
+
 April 21 The Dmitrievsky Chemical Plant in Kineszma, east of Moscow, almost completely burned down.
+
 April 21 A major fire broke out in the military research institute of the Russian Ministry of Defense in Tver, killing 17 and injuring 27.
 
-```
-Взрывы и пожары?
-20.04.2022 Белгород, склад боеприпасов
-21.04.2022 Почти полностью сгорел Дмитриевский химический завод в Кинешме на восток от Москвы
-21.04.2022 В военном институте испытаний министерства обороны России в Твере вспыхнул пожар в результате которого погибло 17 человек, а 27 получили ранения.
-```
-
-[Tver Instytut badawczy](https://github.com/whatsupW/Rusnazizm/blob/main/1/Tver.mp4?raw=true)
-
-https://user-images.githubusercontent.com/101053692/165711181-0c9c975d-6488-4f77-973f-143d249503df.mp4
-
 Massive fires broke out on April 24-25 in Bryansk, Russia. Burned incl. crude oil storage facility, Transneft-Druzhba bases.
+
 At 2 am, April 25, Bryansk Oblast, a fire at Bryansk, Fokinsk district, Moscow Street. A fuel depot was on fire.
 
-```
-Ночью с 24 на 25 апреля в российском Брянске вспыхнули масштабные пожары. Горела нефтебаза Транснефть-Дружба.
-В два ночи, 25 апреля, в брянской области, по адресу улица Московская горел склад дизельного топлива
-```
-[Briańsk skład paliw - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Bryansk.mp4?raw=true)
-
-https://user-images.githubusercontent.com/101053692/165711096-6000994e-8af5-4d89-a883-e6c87c0bf2e0.mp4
-
-On April 25, a fire broke out at the Ussurujsk air base, at the 323th Aviation Repair Plant on the Vozdvizhenka base.
-
-```
-25 апреля вспыхнул пожар на военной базе в Уссурийске в 323 Авиационно-ремонтном заводе на базе Воздвиженка.
-```
-
-[Ussuriysk – (Уссури́йск) baza lotnicza](https://github.com/whatsupW/Rusnazizm/blob/main/1/Usuryjsk.mp4?raw=true)
-
-https://user-images.githubusercontent.com/101053692/165711957-270a31e4-6937-47e0-a5d1-76f2c2065da4.mp4
+On April 25, a fire broke out at the Ussurujsk air base, at the 323th Aviation Repair Plant on the Vozdvizhenka base. 
 
 April 28 Construction of a medical center is burning in Moscow. Town residents inform about it. Also, 7 cars burned down on one of the streets in the capital this night.
 
 April 28 7 cars with the letter Z burn in Moscow
 
 ```
+Взрывы и пожары?
+20.04.2022 Белгород, склад боеприпасов
+21.04.2022 Почти полностью сгорел Дмитриевский химический завод в Кинешме на восток от Москвы
+21.04.2022 В военном институте испытаний министерства обороны России в Твере вспыхнул пожар в результате которого погибло 17 человек, а 27 получили ранения.
+Ночью с 24 на 25 апреля в российском Брянске вспыхнули масштабные пожары. Горела нефтебаза Транснефть-Дружба.
+В два ночи, 25 апреля, в брянской области, по адресу улица Московская горел склад дизельного топлива
+25 апреля вспыхнул пожар на военной базе в Уссурийске в 323 Авиационно-ремонтном заводе на базе Воздвиженка.
 28.04.2022 В Москве горит медицинский центр. Информируют об этом местные жители. Сегодня ночью на одной из столичных улиц сгорело 7 автомобилей. 
 28 kwiecień 7 aut z literą Z płonie w Moskwie
 ```
+
+[Tver Instytut badawczy](https://github.com/whatsupW/Rusnazizm/blob/main/1/Tver.mp4?raw=true)
+
+https://user-images.githubusercontent.com/101053692/165711181-0c9c975d-6488-4f77-973f-143d249503df.mp4
+
+
+[Briańsk skład paliw - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Bryansk.mp4?raw=true)
+
+https://user-images.githubusercontent.com/101053692/165711096-6000994e-8af5-4d89-a883-e6c87c0bf2e0.mp4
+
+
+
+[Ussuriysk – (Уссури́йск) baza lotnicza](https://github.com/whatsupW/Rusnazizm/blob/main/1/Usuryjsk.mp4?raw=true)
+
+https://user-images.githubusercontent.com/101053692/165711957-270a31e4-6937-47e0-a5d1-76f2c2065da4.mp4
+
 
 [Moskwa centrum medyczne płonie- link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Moskwa.mp4?raw=true)
 
