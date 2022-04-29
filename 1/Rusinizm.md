@@ -121,46 +121,36 @@ https://github.com/whatsupW/whatsupW/blob/main/Poverty_in_Russia.md
 20.04.2022 Bolgorad, skład amunicji.
 21 kwietnia Niemal doszczętnie spłonął Dmitriewski Zakład Chemiczny w Kineszmie na wschód od Moskwy.
 21 kwietnia W wojskowym instytucie badawczym ministerstwa obrony Rosji w Twerze wybuchł duży pożar, w wyniku którego zginęło 17 osób, a 27 zostało rannych.
+Z 24 na 25 kwietnia w rosyjskim Briańsku, wybuchły potężne pożary. Płonął m.in. magazyn ropy naftowej, bazy Transnieft-Drużba.
+O 2 w nocy, 25 kwietnia, Obwod Briański pożar pod adresem: Briańsk, dzielnica Fokinski, ulica Moskiewska. Płonął skład paliw.
+25 kwietnia wybuchł pożar na bazie lotniczej w Ussurujsku, w 323. Lotniczym Zakładzie Remontowym na bazie Wozdwiżenka.
+28 kwietnia W Moskwie płonie budowa centrum medycznego. Informują o tym mieszkańcy miasta. Dziś w nocy na jednej ze stołecznych ulic spłonęło również 7 samochodów.
+28 kwiecień 7 aut z literą Z płonie w Moskwie
 
 ```
 Взрывы и пожары?
 20.04.2022 Белгород, склад боеприпасов
 21.04.2022 Почти полностью сгорел Дмитриевский химический завод в Кинешме на восток от Москвы
 21.04.2022 В военном институте испытаний министерства обороны России в Твере вспыхнул пожар в результате которого погибло 17 человек, а 27 получили ранения.
+Ночью с 24 на 25 апреля в российском Брянске вспыхнули масштабные пожары. Горела нефтебаза Транснефть-Дружба.
+В два ночи, 25 апреля, в брянской области, по адресу улица Московская горел склад дизельного топлива
+25 апреля вспыхнул пожар на военной базе в Уссурийске в 323 Авиационно-ремонтном заводе на базе Воздвиженка.
+28.04.2022 В Москве горит медицинский центр. Информируют об этом местные жители. Сегодня ночью на одной из столичных улиц сгорело 7 автомобилей. 
+28 kwiecień 7 aut z literą Z płonie w Moskwie
 ```
 
 [Tver Instytut badawczy](https://github.com/whatsupW/Rusnazizm/blob/main/1/Tver.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/165711181-0c9c975d-6488-4f77-973f-143d249503df.mp4
 
-Z 24 na 25 kwietnia w rosyjskim Briańsku, wybuchły potężne pożary. Płonął m.in. magazyn ropy naftowej, bazy Transnieft-Drużba.
-O 2 w nocy, 25 kwietnia, Obwod Briański pożar pod adresem: Briańsk, dzielnica Fokinski, ulica Moskiewska. Płonął skład paliw.
-
-```
-Ночью с 24 на 25 апреля в российском Брянске вспыхнули масштабные пожары. Горела нефтебаза Транснефть-Дружба.
-В два ночи, 25 апреля, в брянской области, по адресу улица Московская горел склад дизельного топлива
-```
 [Briańsk skład paliw - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Bryansk.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/165711096-6000994e-8af5-4d89-a883-e6c87c0bf2e0.mp4
-
-25 kwietnia wybuchł pożar na bazie lotniczej w Ussurujsku, w 323. Lotniczym Zakładzie Remontowym na bazie Wozdwiżenka.
-
-```
-25 апреля вспыхнул пожар на военной базе в Уссурийске в 323 Авиационно-ремонтном заводе на базе Воздвиженка.
-```
 
 [Ussuriysk – (Уссури́йск) baza lotnicza](https://github.com/whatsupW/Rusnazizm/blob/main/1/Usuryjsk.mp4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/165711957-270a31e4-6937-47e0-a5d1-76f2c2065da4.mp4
 
-28 kwietnia W Moskwie płonie budowa centrum medycznego. Informują o tym mieszkańcy miasta. Dziś w nocy na jednej ze stołecznych ulic spłonęło również 7 samochodów.
-
-28 kwiecień 7 aut z literą Z płonie w Moskwie
-```
-28.04.2022 В Москве горит медицинский центр. Информируют об этом местные жители. Сегодня ночью на одной из столичных улиц сгорело 7 автомобилей. 
-28 kwiecień 7 aut z literą Z płonie w Moskwie
-```
 
 [Moskwa centrum medyczne płonie- link](https://github.com/whatsupW/Rusnazizm/blob/main/1/Moskwa.mp4?raw=true)
 
