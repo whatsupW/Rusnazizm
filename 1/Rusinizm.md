@@ -79,6 +79,10 @@ https://t.me/kharkiv_trybunal_bot
 
 https://user-images.githubusercontent.com/101053692/165826970-c8b5c5da-3489-40e5-b794-d518e9b48121.mp4
 
+[Znany dziennikarz mówi jak naprawdę jest- link](https://github.com/whatsupW/whatsupW/blob/main/img/5/Dziennikarz_m.mp4?raw=true)
+
+https://user-images.githubusercontent.com/101053692/164982227-c470a443-af03-4377-818d-516b3057bb14.mp4
+
 [Tłumaczy - link](https://github.com/whatsupW/Rusnazizm/blob/main/1/4.MP4?raw=true)
 
 https://user-images.githubusercontent.com/101053692/165827132-8975637f-07b4-43e4-9cf8-91a01384c01e.MP4
