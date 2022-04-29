@@ -119,13 +119,22 @@ https://github.com/whatsupW/whatsupW/blob/main/Poverty_in_Russia.md
 #### Wybuchy i pożary
 
 20.04.2022 Bolgorad, skład amunicji.
+
 21 kwietnia Niemal doszczętnie spłonął Dmitriewski Zakład Chemiczny w Kineszmie na wschód od Moskwy.
+
 21 kwietnia W wojskowym instytucie badawczym ministerstwa obrony Rosji w Twerze wybuchł duży pożar, w wyniku którego zginęło 17 osób, a 27 zostało rannych.
+
 Z 24 na 25 kwietnia w rosyjskim Briańsku, wybuchły potężne pożary. Płonął m.in. magazyn ropy naftowej, bazy Transnieft-Drużba.
+
 O 2 w nocy, 25 kwietnia, Obwod Briański pożar pod adresem: Briańsk, dzielnica Fokinski, ulica Moskiewska. Płonął skład paliw.
+
 25 kwietnia wybuchł pożar na bazie lotniczej w Ussurujsku, w 323. Lotniczym Zakładzie Remontowym na bazie Wozdwiżenka.
+
 28 kwietnia W Moskwie płonie budowa centrum medycznego. Informują o tym mieszkańcy miasta. Dziś w nocy na jednej ze stołecznych ulic spłonęło również 7 samochodów.
+
 28 kwiecień 7 aut z literą Z płonie w Moskwie
+
+Ciekawe do dziś będzie, Czy wreszcie pojmniecie, że to Was też dotyczy?
 
 ```
 Взрывы и пожары?
@@ -137,6 +146,7 @@ O 2 w nocy, 25 kwietnia, Obwod Briański pożar pod adresem: Briańsk, dzielnica
 25 апреля вспыхнул пожар на военной базе в Уссурийске в 323 Авиационно-ремонтном заводе на базе Воздвиженка.
 28.04.2022 В Москве горит медицинский центр. Информируют об этом местные жители. Сегодня ночью на одной из столичных улиц сгорело 7 автомобилей. 
 28 kwiecień 7 aut z literą Z płonie w Moskwie
+Интересно будет и по сей день, Поймешь ли ты наконец, что это касается и тебя?
 ```
 
 [Tver Instytut badawczy](https://github.com/whatsupW/Rusnazizm/blob/main/1/Tver.mp4?raw=true)
