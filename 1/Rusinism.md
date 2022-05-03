@@ -1,5 +1,4 @@
 # Rusinism 
-To english translated by google. It will improve tomorrow
 
 ##Part 1 on the first day
 
